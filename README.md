@@ -1,4 +1,6 @@
-# :wave: The Basics of GitHub 
+# :wave: Andrea Francisco 
+
+Watch the Evil Dead trilogy by director Sam Raimi starring Bruce Campbell
 
 ## 🤓 Course overview and learning outcomes 
 
