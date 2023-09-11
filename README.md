@@ -1,6 +1,6 @@
 # :wave: Andrea Francisco 
 
-Watch the Evil Dead trilogy by director Sam Raimi starring Bruce Campbell
+Watch the Evil Dead trilogy by director Sam Raimi starring Bruce Campbell :3
 
 ## 🤓 Course overview and learning outcomes 
 
